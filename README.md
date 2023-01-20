@@ -1,1 +1,1 @@
-# human-society-
+# Sm code camp 
